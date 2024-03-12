@@ -1,8 +1,1 @@
-![thisuserboats](https://i.postimg.cc/VkxnWKkG/boats-userbox-by-userboxesgalore-dbh7u1m-fullview.jpg) 
-![agape](https://i.postimg.cc/FR9Z0TPt/c2c16242.png) 
-![goyou](https://i.postimg.cc/kGGvpB3f/9f4b01d1.png)
-![yusukelover](https://i.postimg.cc/qvp6hGm8/stamp-request-by-iowrie-dbfft0r-fullview.png)
-![ohshcbutton](https://i.postimg.cc/sgfDRNBy/tumblr-de9a6d327403713e453d27346f82e095-c2d9fa54-400.png)
-![personafans](https://i.postimg.cc/13nQrh2W/dca1r34-26cff5dc-e4c3-4b20-a77f-2e1b16d24017.gif)
-![tallyhallsgoodandevil](https://i.postimg.cc/brTcCq9n/tumblr-02ce704f44b9bc50440a5ea2f4028bd0-9de172c3-250.gif)
-![thisuserryuji](https://i.postimg.cc/cHVpxyx7/tumblr-orq3u8ltq-G1w3tfm5o1-250.jpg)
+GUYZZ IM UPDATING THIS FOR LAZY PEOPLE!!!!
