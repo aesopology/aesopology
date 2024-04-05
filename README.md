@@ -1,6 +1,11 @@
-GUYZZ IM UPDATING THIS FOR LAZY PEOPLE!!!!
+" I still have everything she brought but she never took... "
+----
+Read my repositories... They're important ! !
 
-add me on idv if you want 19933289
-!!:3
+I really love my friends (and idv.)
+Talk to me about anything ! ! Add me on idv too plsss.. 
+19933289 NA/EU 
 
-![1000049789](https://github.com/Shinji-lkari/Shinji-lkari/assets/155784380/9842157b-0dac-4c2e-b857-24a708427cf9)
+----
+" You know where to find me, and I know where to look. "
+![1000050562](https://github.com/Shinji-lkari/Shinji-lkari/assets/155784380/c42745e1-008a-4367-b9de-ac29b7188c50)
