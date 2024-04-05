@@ -8,4 +8,5 @@ Talk to me about anything ! ! Add me on idv too plsss..
 
 ----
 " You know where to find me, and I know where to look. "
+
 ![1000050562](https://github.com/Shinji-lkari/Shinji-lkari/assets/155784380/c42745e1-008a-4367-b9de-ac29b7188c50)
