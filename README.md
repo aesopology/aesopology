@@ -4,4 +4,4 @@ Honorary PonyTown Beta (thank you.)
 
 cant keep a steady main + spends too much money
 
-![1000056913](https://github.com/aesopology/aesopology/assets/155784380/a2c27d0b-f400-4caa-aae6-b60d77f1e90d)
+![1000057116](https://github.com/aesopology/aesopology/assets/155784380/1f556b11-dae7-4fbd-95c2-dcf08ff5f94b)
