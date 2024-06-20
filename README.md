@@ -5,3 +5,5 @@ Honorary PonyTown Beta (thank you.)
 cant keep a steady main + spends too much money
 
 ![1000057116](https://github.com/aesopology/aesopology/assets/155784380/1f556b11-dae7-4fbd-95c2-dcf08ff5f94b)
+
+![](https://komarev.com/ghpvc/?aesopology=your-github-username&label=PROFILE+VIEWS:3)
