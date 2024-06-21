@@ -1,9 +1,8 @@
 Honorary PonyTown Beta (thank you.) 
 
-#1 aesop na/eu (trust me.).
+#1 nortganji fan na/eu (trust me.).
 
 cant keep a steady main + spends too much money
 
-![1000057116](https://github.com/aesopology/aesopology/assets/155784380/1f556b11-dae7-4fbd-95c2-dcf08ff5f94b)
+![1000057918](https://github.com/aesopology/aesopology/assets/155784380/5150d6e6-669d-4440-a10c-2afa90d1f9b2)
 
-![](https://komarev.com/ghpvc/?username=your-github-username&label=PROFILE+VIEWS:3)
