@@ -1,4 +1,3 @@
-the aesopology
 
 uhh i dont talk that often sorry
 
