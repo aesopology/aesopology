@@ -1,6 +1,3 @@
-![1000070395](https://github.com/user-attachments/assets/a1b1786c-541c-4941-97d3-efaa29ca2e29)
-![1000070394](https://github.com/user-attachments/assets/60515a60-c4b9-4786-b3c8-574bda5d320d)
-![1000070436](https://github.com/user-attachments/assets/13a80139-84c0-4174-b2fe-2235935dd17d)
 
 uhh i dont talk that often sorry
 
@@ -14,3 +11,6 @@ just a few people know me
 ![IMG_20241024_133457](https://github.com/user-attachments/assets/e69bd960-5552-4af0-9d2c-7d371aa6d0c4)
 ![IMG_20241024_133545](https://github.com/user-attachments/assets/d55f07fe-e35d-4275-a698-a30ed93a4fe6)
 ![IMG_20241024_133759](https://github.com/user-attachments/assets/735ad7f4-78aa-4e1c-83f6-39811722ac9b)
+![1000070395](https://github.com/user-attachments/assets/a1b1786c-541c-4941-97d3-efaa29ca2e29)
+![1000070394](https://github.com/user-attachments/assets/60515a60-c4b9-4786-b3c8-574bda5d320d)
+![1000070436](https://github.com/user-attachments/assets/13a80139-84c0-4174-b2fe-2235935dd17d)
