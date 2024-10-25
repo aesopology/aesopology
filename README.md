@@ -1,3 +1,6 @@
+![1000070395](https://github.com/user-attachments/assets/a1b1786c-541c-4941-97d3-efaa29ca2e29)
+![1000070394](https://github.com/user-attachments/assets/60515a60-c4b9-4786-b3c8-574bda5d320d)
+![1000070436](https://github.com/user-attachments/assets/13a80139-84c0-4174-b2fe-2235935dd17d)
 
 uhh i dont talk that often sorry
 
