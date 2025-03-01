@@ -14,3 +14,7 @@ just a few people know me
 ![1000070395](https://github.com/user-attachments/assets/a1b1786c-541c-4941-97d3-efaa29ca2e29)
 ![1000070394](https://github.com/user-attachments/assets/60515a60-c4b9-4786-b3c8-574bda5d320d)
 ![1000070436](https://github.com/user-attachments/assets/13a80139-84c0-4174-b2fe-2235935dd17d)
+![1000084139](https://github.com/user-attachments/assets/18b98577-246c-41e5-92a6-40524c648bc5)
+![1000084138](https://github.com/user-attachments/assets/3f33f635-8047-4469-8ce1-59eae4cefb21)
+![1000084137](https://github.com/user-attachments/assets/1b23dd74-7963-4b5b-b308-96efa0806cba)
+
