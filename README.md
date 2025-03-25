@@ -19,3 +19,4 @@ just a few people know me
 ![1000084137](https://github.com/user-attachments/assets/1b23dd74-7963-4b5b-b308-96efa0806cba)
 ![1000084136](https://github.com/user-attachments/assets/054863fd-b7b8-4ecd-b679-dad771bc6420)
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=6zrr4253mpkuc8pzh69ezkhjl&cover_image=false&theme=default&show_offline=true&background_color=121212&interchange=false&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
