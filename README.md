@@ -8,5 +8,5 @@ IDENTITY V/OMORI/SOUTH PARK
 - daily.aesop on insta
 - aesopology on yt
 - aesopology on tt
-- HEROTHECOOK on IDV
+- aesopology on IDV
   
