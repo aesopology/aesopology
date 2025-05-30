@@ -1,4 +1,4 @@
-![1000085564](https://github.com/user-attachments/assets/d24aadd6-04c3-4322-b617-3d8c559c563b)
+![1000085564]((https://i.postimg.cc/W4MWSfrh/tumblr-dd41607f09fa317ece3f2af5a3a525a4-4e3ec50a-400-gif.webp)
 
 check out my pages !
 please feel free to talk to me, although, i dont engage in small talk ^_^
