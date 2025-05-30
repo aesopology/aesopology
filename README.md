@@ -6,7 +6,7 @@
 check out my pages !
 please feel free to talk to me, although, i dont engage in small talk ^_^
 
-IDENTITY V/OMORI/SOUTH PARK
+IDENTITY V/OMORI/SOUTH PARK/YAOI
 
 - daily.aesop on insta
 - aesopology on yt
