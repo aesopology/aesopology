@@ -1,4 +1,7 @@
-hi guys let me change
-i remember winning honorary beta award
+<img width="400" height="343" alt="12233" src="https://github.com/user-attachments/assets/83e121bb-5fc1-4fdc-b028-9a662381780c" />
 
-![12149](https://github.com/user-attachments/assets/a6455d21-91ab-45de-ac0b-a0deb7e0e884)
+‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎‎ ‎  ‎ [ata](https://maeisogai.atabook.org/) ‎ [straw](https://semi-senioritis.straw.page/)‎ [rentry](https://rentry.co/aesopology)
+
+
+
+‎ ‎ ‎ ‎ ‎‎ ‎ ‎   ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎‎   ‎ ‎ ‎ ![](https://komarev.com/ghpvc/?username=aesopology&color=FFD2C0)
