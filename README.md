@@ -7,7 +7,7 @@
 
 ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎  ‎   ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎‎‎ ‎    ‎‎ ‎‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ![](https://komarev.com/ghpvc/?username=aesopology&color=E9E39E)
 
-‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ <img width="270" height="11" alt="14467" src="https://github.com/user-attachments/assets/5fe2a42b-95d0-4cdc-ade6-f4e8c460bd6b" />
+‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ <img width="300" height="11" alt="14467" src="https://github.com/user-attachments/assets/5fe2a42b-95d0-4cdc-ade6-f4e8c460bd6b" />
 
 ‎ 
 
