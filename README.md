@@ -1,4 +1,5 @@
-<img width="400" height="343" alt="12233" src="https://github.com/user-attachments/assets/83e121bb-5fc1-4fdc-b028-9a662381780c" />
+<img width="602" height="410" alt="14466" src="https://github.com/user-attachments/assets/35ad1bec-9417-42a6-8ecc-7576413b906c" />
+
 
 ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎  ‎ ‎‎‎  [ata](https://maeisogai.atabook.org/) ‎ [straw](https://semi-senioritis.straw.page/)‎ ‎ [rentry](https://rentry.co/toyavbs)
 
