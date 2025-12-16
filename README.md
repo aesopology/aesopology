@@ -9,8 +9,7 @@
 
 <img width="300" height="11" alt="14467" src="https://github.com/user-attachments/assets/5fe2a42b-95d0-4cdc-ade6-f4e8c460bd6b" />
 
-<center>I like lots of different medias! (*^ω^)Please look at all my info for more! Im always c+h and never be scared to chat!! Im very shy so i probably wont approach you first (^_^;) silently appreciating your ponies ...♡</center>
-
+p {text-align: center;I like lots of different medias! (*^ω^)Please look at all my info for more! Im always c+h and never be scared to chat!! Im very shy so i probably wont approach you first (^_^;) silently appreciating your ponies ...♡}
 ‎ 
 
 
