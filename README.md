@@ -12,7 +12,7 @@
 
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎     ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎I like lots of different medias! (*^ω^)Please look at all my info for more!
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎     ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎     ‎ ‎ ‎ ‎ ‎Im always c+h and never be scared to chat!! Im very shy so i probably wont approach you first (^_^;)
+Im always c+h and never be scared to chat!! Im very shy so i probably wont approach you first (^_^;)
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎     ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎     ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎     ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎     ‎ ‎ ‎ ‎ ‎silently appreciating your ponies ...♡
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=6zrr4253mpkuc8pzh69ezkhjl&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=a6a292&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
