@@ -1,5 +1,5 @@
+<img width="736" height="395" alt="48329" src="https://github.com/user-attachments/assets/b87ad912-0d91-4e93-9e08-fb6152325c6e" />
 
-<img width="602" height="410" alt="14466" src="https://github.com/user-attachments/assets/35ad1bec-9417-42a6-8ecc-7576413b906c" />
 
  [♡ ata](https://maeisogai.atabook.org/) ‎ ‎ [rentry ♡](https://rentry.co/toyavbs)
 
