@@ -3,7 +3,7 @@
 </p>
 
 
-<a href="(https://maeisogai.atabook.org/)">sign my ata !! </a>
+[♡ ata](https://maeisogai.atabook.org/) ‎ ‎ [rentry ♡](https://rentry.co/toyavbs)
 
 ![](https://komarev.com/ghpvc/?username=aesopology&color=DCE486)
 
