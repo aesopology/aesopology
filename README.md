@@ -11,7 +11,7 @@
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎     ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎     ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎     ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎<img width="300" height="11" alt="14467" src="https://github.com/user-attachments/assets/5fe2a42b-95d0-4cdc-ade6-f4e8c460bd6b" />
 
->Hi there (　＾ω＾) Im aesop (or aes!) I like lots of different media. Im a big fudanshi!! I love kawoshin, maeiso and xingyun! ♡ Please feel free to interact, i dont bite ! However, keep in mind that I am quite shy -x- C+H OK!<
+>Hi there (　＾ω＾) Im aesop (or aes!) I like lots of different media. Im a big fudanshi!! I love kawoshin, maeiso and xingyun! ♡ Please feel free to interact, i dont bite ! However, keep in mind that I am quite shy -x- C+H OK!
 
 ‎‎Please sign my ata and leave a message on my strawpage, Its greatly appreciated ♡‎ ‎ ‎ ‎ ‎ ‎‎
 
