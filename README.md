@@ -8,8 +8,8 @@
  [♡ ata](https://maeisogai.atabook.org/) ‎ ‎ [rentry ♡](https://rentry.co/toyavbs)
 </p>
 
-<h1 align="center">![](https://komarev.com/ghpvc/?username=aesopology&color=DCE486)
-</h1>
+![](https://komarev.com/ghpvc/?username=aesopology&color=DCE486)
+
 
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎     ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎     ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎     ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎<img width="300" height="11" alt="14467" src="https://github.com/user-attachments/assets/5fe2a42b-95d0-4cdc-ade6-f4e8c460bd6b" />
