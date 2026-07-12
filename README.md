@@ -3,7 +3,8 @@
 </p>
 
 
-[♡ ata](https://maeisogai.atabook.org/) ‎ ‎ [rentry ♡](https://rentry.co/toyavbs)
+<p align="center">[♡ ata](https://maeisogai.atabook.org/) ‎ ‎ [rentry ♡](https://rentry.co/toyavbs)
+</p>
 
 ![](https://komarev.com/ghpvc/?username=aesopology&color=DCE486)
 
