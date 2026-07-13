@@ -16,5 +16,5 @@ please check my linktree for more Ok
 </p>
 
 <p align="center">
-     <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&width=435&lines=Aoba-san..;Will+you..;Fulfill+my+request..%3F" alt="Typing SVG" /></a>
+               <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&width=435&lines=Aoba-san..;Will+you..;Fulfill+my+request..%3F" alt="Typing SVG" /></a>
 </p>
