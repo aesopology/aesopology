@@ -4,6 +4,9 @@
 
 <p align="center">
 hi im aesop ! sign ata okay?
-fudan..
+i am very friendly always c+h but w2i!
+please check my linktree for more Ok
+
+   https://maeisogai.atabook.org/
 </p>
 
