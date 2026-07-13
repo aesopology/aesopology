@@ -9,5 +9,4 @@ please check my linktree for more Ok
 </p>
 <p align="center">
    https://maeisogai.atabook.org/
-   https://listography.com/aesopology
 </p>
