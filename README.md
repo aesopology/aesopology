@@ -15,6 +15,6 @@ please check my linktree for more Ok
 <img width="300" height="206" alt="_clear 📺 (1)" src="https://github.com/user-attachments/assets/ffc343b0-5179-49a8-8bef-2728b211c872" />
 </p>
 
-
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&width=435&lines=Aoba-san..;Will+you..;Fulfill+my+request..%3F" alt="Typing SVG" /></a>
-
+<p align="center">
+     <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&width=435&lines=Aoba-san..;Will+you..;Fulfill+my+request..%3F" alt="Typing SVG" /></a>
+</p>
