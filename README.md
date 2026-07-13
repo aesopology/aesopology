@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-hi im aesop ! sign [ata](https://maeisogai.atabook.org/) okay?
+hi im aesop ! sign ata okay?
 fudan..
 </p>
 
