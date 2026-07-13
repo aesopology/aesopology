@@ -6,7 +6,5 @@
 hi im aesop ! sign ata okay?
 i am very friendly always c+h but w2i!
 please check my linktree for more Ok
-
-   https://maeisogai.atabook.org/
 </p>
-
+<p align="center">https://maeisogai.atabook.org/</p>
