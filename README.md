@@ -10,3 +10,7 @@ please check my linktree for more Ok
 <p align="center">
    https://maeisogai.atabook.org/
 </p>
+
+<p align="center">
+<img width="300" height="206" alt="_clear 📺 (1)" src="https://github.com/user-attachments/assets/ffc343b0-5179-49a8-8bef-2728b211c872" />
+</p>
