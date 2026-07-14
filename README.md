@@ -16,5 +16,5 @@ please check my linktree for more Ok
 </p>
 
 <p align="center">
-i was honorary pt beta in 2024 
+i was awarded honorary pt beta in 2024 
 </p>
