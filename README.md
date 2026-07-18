@@ -1,6 +1,7 @@
 <p align="center">
-   <img width="654" height="302" alt="48330" src="https://github.com/user-attachments/assets/528ee34e-dcc9-4098-89f2-09ae02a7bdd2" />
+<img width="700" height="1000" alt="55763" src="https://github.com/user-attachments/assets/f536cdf9-6ea0-44ab-8b5c-3229a87652a5" />
 </p>
+
 
 <p align="center">
 hi im aesop ! sign ata okay?
