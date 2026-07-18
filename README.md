@@ -6,7 +6,7 @@
 <p align="center">
 hi im aesop ! sign ata okay?
 i am very friendly always c+h but w2i!
-please check my linktree for more Ok
+please check my linktree for more Ok im also very shy
 </p>
 <p align="center">
    https://maeisogai.atabook.org/
